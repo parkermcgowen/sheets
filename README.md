@@ -1,2 +1,2 @@
 # sheets
- sheet music
+Rights go to the respective owners
